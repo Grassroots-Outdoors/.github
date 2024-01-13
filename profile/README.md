@@ -3,7 +3,7 @@
 ## Who is Grassroots?
 Grassroots Outdoor Alliance is a cohesive community of independent outdoor specialty retailers and brands that drives evolution within the outdoor industry.
 
-104 retailers strong, we build relationships with each other, and our vendor partners, through ideas, insights, shared data, exclusive buying opportunities, education, and a passion for creating memorable experiences for outdoor enthusiasts.
+100+ retailers strong, we build relationships with each other, and our vendor partners, through ideas, insights, shared data, exclusive buying opportunities, education, and a passion for creating memorable experiences for outdoor enthusiasts.
 
 Most importantly, we are a collaborative team, a thriving community, influencers in the industry, and a united voice as stewards of honorable business and preservation of the environment we all enjoy. 
 
